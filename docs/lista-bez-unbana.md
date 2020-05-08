@@ -40,7 +40,7 @@ Jeśli masz podejrzenia, że osoba z tej listy gra na serwerze zgłoś to jak na
 | 2011-01-01 | Marek_Godlewski | |
 | 2016-12-30 | Lena_Hawkins | [TurkeyKebab](https://mrucznik-rp.pl/user/2056-turkeykebab/) |
 | 2016-12-30 | Rose_Collins | |
-| 2017-03-05 | Harold_Pakushevsky | [Damian](https://mrucznik-rp.pl/user/21-damian/) |
+| 2017-03-05 | Harold_Pakushevsky / Phil_Gualtieri | [Damian](https://mrucznik-rp.pl/user/21-damian/) [BACALA](https://mrucznik-rp.pl/user/9543-bacala/) |
 | 2017-03-05 | Adam_Dyrektor | [Dyrektor Adam](https://mrucznik-rp.pl/user/51-hrabia-don-adamo/) |
 | 2018-08-03 | Samuel_Maranzano | [pogajuras](https://mrucznik-rp.pl/user/17672-pogajuras/) |
 | 2018-08-03 | Fernando_RedTiger | [RedTiger](https://mrucznik-rp.pl/user/796-redtiger/) |
