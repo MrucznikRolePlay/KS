@@ -130,3 +130,4 @@
 | 03-02-2020 | Amelia_Wright | [Daniocha](https://mrucznik-rp.pl/user/17200-daniocha/) | Czitowanie | 6 miesięcy | [WNIOSEK](https://mrucznik-rp.pl/topic/16199-ks-wnioski-do-komisji-sprawiedliwo%C5%9Bci/page-42?p=986413#entry986413) |
 | 06-05-2020 | Ray_Dodd | [skMatish](https://mrucznik-rp.pl/user/20669-skmatish/) | Czitowanie | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/18445) |
 | 05-05-2020 | Sergiej_Molotov | [skTestoviron](https://mrucznik-rp.pl/user/18756-sktestoviron/) | Czitowanie | 6 miesięcy | [APELACJA](https://mrucznik-rp.pl/topic/95640-ban-sergiej-molotov-sktestoviron/) |
+| 08-05-2020 | Jayden_Howard | [xSeLeCTx](https://mrucznik-rp.pl/user/8357-xselectx/) | - | - | [APELACJA](https://mrucznik-rp.pl/apelacje/18464) |
