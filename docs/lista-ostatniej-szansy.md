@@ -131,3 +131,5 @@
 | 06-05-2020 | Ray_Dodd | [skMatish](https://mrucznik-rp.pl/user/20669-skmatish/) | Czitowanie | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/18445) |
 | 05-05-2020 | Sergiej_Molotov | [skTestoviron](https://mrucznik-rp.pl/user/18756-sktestoviron/) | Czitowanie | 6 miesięcy | [APELACJA](https://mrucznik-rp.pl/topic/95640-ban-sergiej-molotov-sktestoviron/) |
 | 08-05-2020 | Jayden_Howard | [xSeLeCTx](https://mrucznik-rp.pl/user/8357-xselectx/) | - | - | [APELACJA](https://mrucznik-rp.pl/apelacje/18464) |
+| 10-05-2020 | Malik_Rockefeller | [Gibbson](https://mrucznik-rp.pl/user/22926-gibbson/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18499) |
+| 11-05-2020 | Michel_Swift | [FuBu](https://mrucznik-rp.pl/user/4161-fubu/) | Czitowanie | 12 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/18514) |
