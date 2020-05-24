@@ -133,3 +133,8 @@
 | 08-05-2020 | Jayden_Howard | [xSeLeCTx](https://mrucznik-rp.pl/user/8357-xselectx/) | - | - | [APELACJA](https://mrucznik-rp.pl/apelacje/18464) |
 | 10-05-2020 | Malik_Rockefeller | [Gibbson](https://mrucznik-rp.pl/user/22926-gibbson/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18499) |
 | 11-05-2020 | Michel_Swift | [FuBu](https://mrucznik-rp.pl/user/4161-fubu/) | Czitowanie | 12 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/18514) |
+| 13-05-2020 | Ramon_Seceda | [lowflow ellington](https://mrucznik-rp.pl/user/606-lowflow-ellington/) | Udostępnianie danych | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18515) |
+| 14-05-2020 | John_Diaz | [ESHU](https://mrucznik-rp.pl/user/7747-eshu/) | - | - | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18532) |
+| 20-05-2020 | Monica_Allen | [gracz2001PL](https://mrucznik-rp.pl/user/23402-gracz2001pl/) | Czitowanie | 6 miesięcy | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18598) |
+| 24-05-2020 | Kate_Collins | [Madzia1](https://mrucznik-rp.pl/user/23354-madzia1/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18628) |
+| 13-05-2020 | Cole_Sproule | [davviseq69](https://mrucznik-rp.pl/user/15494-davviseq69/) | - | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/18415) |
