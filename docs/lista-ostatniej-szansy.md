@@ -133,3 +133,4 @@
 | 08-05-2020 | Jayden_Howard | [xSeLeCTx](https://mrucznik-rp.pl/user/8357-xselectx/) | - | - | [APELACJA](https://mrucznik-rp.pl/apelacje/18464) |
 | 10-05-2020 | Malik_Rockefeller | [Gibbson](https://mrucznik-rp.pl/user/22926-gibbson/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18499) |
 | 11-05-2020 | Michel_Swift | [FuBu](https://mrucznik-rp.pl/user/4161-fubu/) | Czitowanie | 12 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/18514) |
+| 13-05-2020 | Ramon_Seceda | [lowflow ellington](https://mrucznik-rp.pl/user/606-lowflow-ellington/) | Udostępnianie danych | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/index.php?/apelacje/18515) |
