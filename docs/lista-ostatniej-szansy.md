@@ -148,3 +148,4 @@
 | 21-07-2020 | Harry_Matoga | [Matoga](https://mrucznik-rp.pl/profile/13854-matoga/) | Czitowanie | 12 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19100/) |
 | 13-07-2020 | Monitor_Bambyrovic | [skRuskie fajki sety](https://mrucznik-rp.pl/profile/21897-skruskie-fajki-sety/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19045/) |
 | 16-08-2020 | Henryk_Chlebek | [Mebequ](https://mrucznik-rp.pl/profile/23195-mebequ/) | Czitowanie | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19253/) |
+| 20-08-2020 | Jeremiah_Pieper | [Black_02](https://mrucznik-rp.pl/profile/22212-black_02/) | Handel majątkiem | - | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19264/) |
