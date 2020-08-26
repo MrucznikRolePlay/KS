@@ -146,3 +146,4 @@
 | 09-07-2020 | Chloe_Anderson | [Alduin 60siątka](https://mrucznik-rp.pl/profile/22225-alduin-60si%C4%85tka/) | - | 6 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19014/) |
 | 17-07-2020 | Tytus_Balagane | [Tytus Diho GMLL LSO](https://mrucznik-rp.pl/profile/21626-tytus-diho-gmll-lso/) | - | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19059/) |
 | 21-07-2020 | Harry_Matoga | [Matoga](https://mrucznik-rp.pl/profile/13854-matoga/) | Czitowanie | 12 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19100/) |
+| 13-07-2020 | Monitor_Bambyrovic | [skRuskie fajki sety](https://mrucznik-rp.pl/profile/21897-skruskie-fajki-sety/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19045/) |
