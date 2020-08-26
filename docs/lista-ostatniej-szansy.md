@@ -144,3 +144,9 @@
 | 30-06-2020 | Jennifer_Jones | [d i s m y](https://mrucznik-rp.pl/profile/22832-d-i-s-m-y/) | - | 3 miesiące | [ODWOŁANIE](https://mrucznik-rp.pl/topic/97385-odwolanie-ks-jennifer-jones-wpis-na-liste/) | 
 | 02-07-2020 | Carl_Winckler | [keely](https://mrucznik-rp.pl/profile/19515-keely/) | - | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/18959) |
 | 09-07-2020 | Chloe_Anderson | [Alduin 60siątka](https://mrucznik-rp.pl/profile/22225-alduin-60si%C4%85tka/) | - | 6 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19014/) |
+| 17-07-2020 | Tytus_Balagane | [Tytus Diho GMLL LSO](https://mrucznik-rp.pl/profile/21626-tytus-diho-gmll-lso/) | - | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19059/) |
+| 21-07-2020 | Harry_Matoga | [Matoga](https://mrucznik-rp.pl/profile/13854-matoga/) | Czitowanie | 12 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19100/) |
+| 13-07-2020 | Monitor_Bambyrovic | [skRuskie fajki sety](https://mrucznik-rp.pl/profile/21897-skruskie-fajki-sety/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19045/) |
+| 16-08-2020 | Henryk_Chlebek | [Mebequ](https://mrucznik-rp.pl/profile/23195-mebequ/) | Czitowanie | 5 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19253/) |
+| 20-08-2020 | Jeremiah_Pieper | [Black_02](https://mrucznik-rp.pl/profile/22212-black_02/) | Handel majątkiem | - | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19264/) |
+| 25-08-2020 | Rajka_Andric | [mlody_sarmata](https://mrucznik-rp.pl/profile/21925-mlody_sarmata/) | - | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19302/) |
