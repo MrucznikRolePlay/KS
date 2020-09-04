@@ -151,3 +151,4 @@
 | 20-08-2020 | Jeremiah_Pieper | [Black_02](https://mrucznik-rp.pl/profile/22212-black_02/) | Handel majątkiem | - | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19264/) |
 | 25-08-2020 | Rajka_Andric | [mlody_sarmata](https://mrucznik-rp.pl/profile/21925-mlody_sarmata/) | - | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19302/) |
 | 29-08-2020 | Clearance_Rockstone | [młody mariusz](https://mrucznik-rp.pl/profile/15960-m%C5%82ody-mariusz/) | - | 8 miesięcy | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19288/) |
+| 04-09-2020 | Jughead_Mcnerney | [Doxe_](https://mrucznik-rp.pl/profile/18646-doxe_/) | Czitowanie | 3 miesiące | [APELACJA](https://mrucznik-rp.pl/apelacje/samp/19352/) |
