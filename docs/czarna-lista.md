@@ -27,3 +27,4 @@ Osoby z listy ostatniej szansy przy otrzymaniu bana z tym samym powodem (lub dow
 | 2020-03-31 | Khali_Touta | [Khali](https://mrucznik-rp.pl/user/16189-khali/) |
 | 2020-04-09 | Scott_Avanger | [duck1one](https://mrucznik-rp.pl/user/16005-duck1one/) |
 | 2020-06-08 | Ermengarde_Traebert/Carlos_Ciaparozza/Ray_Dodd | [M1a](https://mrucznik-rp.pl/profile/21221-m1a/) / [skMatish](https://mrucznik-rp.pl/profile/20669-skmatish/) |
+| 2020-09-08 | Jahseh_Hill | [UGLY](https://mrucznik-rp.pl/profile/1505-ugly/) |
